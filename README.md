@@ -1,0 +1,1 @@
+# AI-REcognize-Handwriting-on-Paper-Forms-Digitize-it
